@@ -1,0 +1,1 @@
+A pretty fun set of assignments! I took some liberties with this one to expand both the first and second scopes, and I think they turned out pretty cool because of that. 
